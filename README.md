@@ -3,6 +3,7 @@
 Beat:
 [FREE] SYBYR  SYRINGE x ERIC NORTH TYPE BEAT - WEIRD ASL  (prod. by underBWE)
 
+thoughts
 why can't you die
 problems i despise
 truthful wrapped 
@@ -10,7 +11,7 @@ in morbid lies
 morbid lies i 
 testify to these moments
 fullest in angst 
-diversify for donners
+diversify in horrors
 angst so bright i 
 feel day-capped, 
 shining 
@@ -19,16 +20,21 @@ promise promise
 
 you'll never wake up alive
 
-treating to bring them down
+treating to bring them
+down
+treating to bring them
+down
 array of lies, 
 
--dish out, pull up 
-- crib is exposed, 
- - routing actives, run protocol, collect the darkness
-make it into a symbol of a new world
+-dish out, flip sides
+pull up 
+- crib so exposed, 
+ - run protocol routing actives, collect darkness
+make it into a symbol of a world anew
 village run by few who can't stand it
 
-burn the proof, activate the facets
+burn the proof, activating faces
+
 
 
 
