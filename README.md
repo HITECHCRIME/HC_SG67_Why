@@ -31,7 +31,7 @@ array of lies,
 pull up 
 - crib so exposed, 
 
- - run protocol routing actives, 
+ - run protocol routing actives (on routine basis - alternative later on)
 collective darkness
 make it into a symbol of a world anew
 
