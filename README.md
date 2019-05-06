@@ -37,7 +37,7 @@ make it into a symbol of a world anew
 
 village run by few who can't stand it
 
-burn the proof, activating faces
+burn the proof, activating faces (activating phases)
 
 reverb
 my fucking
@@ -45,6 +45,7 @@ fault yeah
 
 my fucking
 fault yeah
+
 
 
 
