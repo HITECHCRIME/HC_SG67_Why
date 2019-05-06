@@ -14,6 +14,7 @@ fullest in angst
 diversify in horrors
 angst so bright i 
 feel day-capped, 
+
 shining 
 captured light to these moments
 promise promise
@@ -29,8 +30,11 @@ array of lies,
 -dish out, flip sides
 pull up 
 - crib so exposed, 
- - run protocol routing actives, collect darkness
+
+ - run protocol routing actives, 
+collect darkness
 make it into a symbol of a world anew
+
 village run by few who can't stand it
 
 burn the proof, activating faces
