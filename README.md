@@ -32,7 +32,7 @@ pull up
 - crib so exposed, 
 
  - run protocol routing actives, 
-collect darkness
+collective darkness
 make it into a symbol of a world anew
 
 village run by few who can't stand it
