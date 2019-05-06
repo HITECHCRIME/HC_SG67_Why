@@ -26,7 +26,7 @@ array of lies,
 - crib is exposed, 
  - routing actives, run protocol, collect the darkness
 make it into a symbol of a new world
-village run by few
+village run by few who can't stand it
 
 burn the proof, activate the facets
 
