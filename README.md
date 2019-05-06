@@ -12,7 +12,7 @@ morbid lies i
 testify to these moments
 fullest in angst 
 diversify in horrors
-angst so bright i 
+angst so bright i (angst repetition change)
 feel day-capped, 
 
 shining 
