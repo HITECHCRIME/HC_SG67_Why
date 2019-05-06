@@ -46,6 +46,11 @@ fault yeah
 my fucking
 fault yeah
 
+they tried to bury me (deep)
+but didn't realize i was a seed
+the more depth to traverse 
+the stronger the resolve
+
 
 
 
