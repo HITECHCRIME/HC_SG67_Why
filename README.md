@@ -29,7 +29,7 @@ array of lies,
 
 -dish out, flip sides
 pull up 
-- crib so exposed, 
+- crib so exposed 
 
  - run protocol routing actives (on routine basis - alternative later on)
 collective darkness
