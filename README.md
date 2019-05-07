@@ -12,8 +12,8 @@ problems i despise, truthful wrapped
 in morbid lies, morbid lies 
 
 i testify to these moments
-fullest in angst - 
-diversify in horrors (intensify)
+fullest in angst 
+- diversify in horrors (intensify)
 angst so bright 
 i feel day-capped 
 (angst repetition change)
@@ -22,7 +22,7 @@ shining captured light to these moments
 promise promise
 
 you'll never wake up alive
-treating to bring them  down
+treating to bring them down
 treating to bring them down
 array of lies 
 
@@ -38,7 +38,8 @@ village run by few
 who can't stand it
 
 burn the proof, 
-activating faces (activating phases)
+activating faces 
+(activating phases)
 
 reverb
 my fucking
