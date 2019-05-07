@@ -26,7 +26,7 @@ array of lies
 -dish out, flip sides
 pull up 
 - crib so exposed 
- - run protocol routing actives (on routine basis - alternative later on)
+ - run protocol routing actives (on routine basis)
 collective darkness
 make it into a symbol of a world anew
 
