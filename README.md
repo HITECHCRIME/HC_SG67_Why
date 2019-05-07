@@ -3,6 +3,10 @@
 Beat:
 [FREE] SYBYR  SYRINGE x ERIC NORTH TYPE BEAT - WEIRD ASL  (prod. by underBWE)
 
+## Lyrics
+
+```
+
 thoughts
 why can't you die
 problems i despise
@@ -51,6 +55,11 @@ but didn't realize i was a seed
 the more depth to traverse 
 the stronger the resolve
 
+```
+
+## Notes
+
+## Music Video
 
 
 
