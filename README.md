@@ -7,34 +7,25 @@ Beat:
 
 ```
 
-thoughts
-why can't you die
-problems i despise
-truthful wrapped 
-in morbid lies
-morbid lies i 
-testify to these moments
+thoughts, why can't you die
+problems i despise, truthful wrapped 
+in morbid lies, morbid lies 
+i testify to these moments
 fullest in angst 
-diversify in horrors
-angst so bright i (angst repetition change)
-feel day-capped, 
+- diversify in horrors
+angst so bright i feel day-capped 
+(angst repetition change)
 
-shining 
-captured light to these moments
+shining captured light to these moments
 promise promise
-
 you'll never wake up alive
-
-treating to bring them
-down
-treating to bring them
-down
-array of lies, 
+treating to bring them  down
+treating to bring them down
+array of lies 
 
 -dish out, flip sides
 pull up 
 - crib so exposed 
-
  - run protocol routing actives (on routine basis - alternative later on)
 collective darkness
 make it into a symbol of a world anew
