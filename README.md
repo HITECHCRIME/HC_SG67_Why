@@ -12,7 +12,7 @@ problems i despise, truthful wrapped
 in morbid lies, morbid lies 
 i testify to these moments
 fullest in angst 
-- diversify in horrors
+- diversify in horrors (intensify)
 angst so bright i feel day-capped 
 (angst repetition change)
 
