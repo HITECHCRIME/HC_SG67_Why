@@ -1,6 +1,6 @@
 # HC_SG67_Why
 
-Beat:
+**Beat:**
 [FREE] SYBYR  SYRINGE x ERIC NORTH TYPE BEAT - WEIRD ASL  (prod. by underBWE)
 
 ## Lyrics
